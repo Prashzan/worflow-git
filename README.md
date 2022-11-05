@@ -6,3 +6,8 @@ malai
 tei 
 kti
 chainca
+
+
+
+hum to dewaye
+huye yrr
